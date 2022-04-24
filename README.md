@@ -1,0 +1,2 @@
+# Jurnal09
+Jurnal09_RadityaEga_6706210103
